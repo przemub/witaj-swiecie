@@ -1,3 +1,6 @@
+# witaj-swiecie
+Witamy świat z Jezusem Chrystusem na sercu i ciele
+
 W owy czas daleki...
 
 Kiej Pan Jezus jeszcze po ziemi chadzał i rządy nad narodem sam sprawował, stało się to, coć wam rzeknę...
